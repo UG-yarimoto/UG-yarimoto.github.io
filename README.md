@@ -1,1 +1,1 @@
-# eagitar.github.io
+# UG-yarimoto.github.io
